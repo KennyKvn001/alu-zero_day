@@ -1,1 +1,1 @@
-
+School is complicated
